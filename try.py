@@ -1,1 +1,2 @@
 new
+sorosoro dekitehosii
